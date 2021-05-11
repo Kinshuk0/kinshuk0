@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about Anything
 - 📫 How to reach me: 007kinshuk@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I have adam
+- ⚡ Fun fact: I have adam 
 -->
